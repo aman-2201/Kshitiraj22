@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kshitiraj22
-- 👀 I’m interested in well painting and for quite some time. Coding now
+- 👀 I’m interested in painting and for quite some time, Coding.
 - 🌱 I’m currently learning to code in python
 - 💞️ I’m looking to collaborate on whatever comes my way.
 - 📫 How to reach me well my ig handle is kshitiraj
